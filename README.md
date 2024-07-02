@@ -36,5 +36,5 @@ Team player with strong problem-solving skills and a knack for adapting to new t
 
 ---
 
-This description aims to highlight your key skills, project experiences, educational background, and strengths in a concise and engaging manner. Adjust it as per your preference and style!
+This description aims to highlight my key skills, project experience, and strengths in a concise and engaging manner. 
 
